@@ -1,2 +1,2 @@
 # ANGEL ESCOBAR-
-estudiante de ingenieria en tecnologias de la informacion📌👨‍💻📈
+Estudiante de ingenieria en tecnologías de la información📌👨‍💻📈
